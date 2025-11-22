@@ -13,7 +13,7 @@ To start, here are some principles I live by to help you better understand me as
 
 **Own it.** Taking ownership is the secret sauce to having an impact. I believe in order to get a job done, you have to be willing to take a (sometimes seemingly) irrational amount of responsibility for outcomes. Only then will you see the part you play and make necessary adjustments to achieve results.
 
-**Actions speak louder than words.** Validate everything. Look at the data. Studies have shown our minds make up stories (lie) to us all the time, we are far less rational than we think we are. For this reason, I have a general distrust of my own thinking and seek to prove to what I think I know. If you want to understand yourself, a person, organization, nation, look beyond what they say to see what they do.
+**Actions speak louder than words.** Validate everything. Look at the data. Studies have shown our minds make up stories (lie) to us all the time, we are far less rational than we think we are. For this reason, I have a general distrust of my own thinking and seek to prove to myself what I think I know. If you want to understand yourself, a person, organization, nation, look beyond what they say to see what they do.
 
 **Clarity is power.** We can't do everything, we can't be everyone. We are one person living right now in this moment. Get clarity about who you are and what you want to accomplish in this very short time you are alive. Get clarity about what you will and will not do; what you will or will not allow; who you want to be and who you are becoming. 
 
